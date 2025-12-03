@@ -1,0 +1,1 @@
+# Forex-and-Gold-Trading-Journal
